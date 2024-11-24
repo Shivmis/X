@@ -21,7 +21,7 @@
 
         •━━━━━━━━•••━━━━━━━━•
 
-<img src="https://readme-typing-svg.herokuapp.com?color=FF0000&width=420&lines=MADE+BYE+BADMUNDA%E2%9D%A4%EF%B8%8F"> 
+<img src="https://graph.org/file/34759430fcac0e5052360-75aa94e3b903dd2856.jpg"> 
 
         •━━━━━━━━•••━━━━━━━━•
 
