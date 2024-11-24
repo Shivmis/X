@@ -8,10 +8,8 @@
 <a href="https://youtu.be/0hP_JY_APq0?si=md6qsZQP2UaQ-SPn"><img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"></a>
 
 
-        •━━━━━━━━•••━━━━━━━━•
-
-<img src="https://readme-typing-svg.herokuapp.com?color=FF0000&width=420&lines=MADE+BYE+BADMUNDA%E2%9D%A4%EF%B8%8F"> 
-
+        •━━━━━━━━•••━━━━━━
+<img src="https://graph.org/file/6694152b5167a56d8ba2a-bf5934868bc42c5a35.jpg"></a>
         •━━━━━━━━•••━━━━━━━━•
 
 
