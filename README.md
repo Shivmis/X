@@ -14,7 +14,7 @@
 
 <a href="https://envs.sh/BAU.mp4"><img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"></a>
 
-<p align="center"><a href="https://envs.sh/BAC.mp4"><img src="https://telegra.ph/file/3df11bcade4a69a6335f2.jpg"></a></p>
+<p align="center"><a href="https://envs.sh/BAC.mp4"><img src="https://graph.org/file/92ac9a4ac302e1df01a79-04af86a0905adbbf4c.jpg"></a></p>
 
 <a href="https://envs.sh/BAU.mp4"><img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"></a>
 
