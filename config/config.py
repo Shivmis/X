@@ -212,7 +212,7 @@ START_IMG_URL = getenv(
 
 UC_IMG_URL = getenv(
     "UC_IMG_URL",
-    "https://envs.sh/pMb.jpg",
+    "https://graph.org/file/35f805eeef54335942cd3-236f7b16f2f329477d.jpg",
 )
 
 BOT_IMG_URL = getenv(
