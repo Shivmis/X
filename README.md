@@ -31,4 +31,4 @@
 <a href="https://github.com/Badhacker98/BADMUSIC/blob/bad/MUSIC/Bad.md"><img title="Tap to host" src="https://img.shields.io/badge/Tap to host-%23000000.svg?&style=for-the-badge&logo=github&logoColor=61DAFB"></a>
 
 </h2>
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
+<img src="">
