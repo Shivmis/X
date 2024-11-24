@@ -76,7 +76,7 @@
 
 
 
-12 ✧ ᴄʜᴀᴛ ɢʀᴏᴜᴘ » 👼 @II_CHAT_HUB_II 😈
+12 ✧ ᴄʜᴀᴛ ɢʀᴏᴜᴘ » 👼 https://t.me/FRIENDS_ZONE_GP 😈
 
 
 
