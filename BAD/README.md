@@ -58,19 +58,19 @@
 
 
 
-9 ✧ ᴄʜᴀᴛ ʙᴏᴛ » 🌉 @KaurSardarni_bot 🌉
+9 ✧ ᴄʜᴀᴛ ʙᴏᴛ » 🌉 @X_ANGEL_RBOT🌉
 
 
 
 
 
-10 ✧ ᴅᴘᴢ ᴄʜᴀɴɴᴇʟ » 🥺 @BEAUTIFUl_DPZ 🥺
+10 ✧ ᴅᴘᴢ ᴄʜᴀɴɴᴇʟ » 🥺 err 🥺
 
 
 
 
 
-11 ✧ ғᴇʟʟɪɴɢ ʙᴀᴅ ᴄʜᴀɴɴᴇʟ » 😈 @FELLINGS_BAD 😈
+11 ✧ ғᴇʟʟɪɴɢ ʙᴀᴅ ᴄʜᴀɴɴᴇʟ » 😈 https://t.me/Love_Shayari_Hindi_Status 😈
 
 
 
