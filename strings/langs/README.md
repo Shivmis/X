@@ -1,32 +1,96 @@
-<h2 align="center">
-    「 ❣️ʙᴀᴅ ᴍᴜsɪᴄ ❣️ 」
+        「 🕊️⃝‌ٖٖٖٖ- ♔ 𝐒 𝐇 𝐈 𝐕 𝐀 𝐍 𝐆 🜲 ˹ 𝐎ᴘ ˼﹛🇨🇦﹜≈ 💸 ‌ٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖٖ
 </h2>
-<a href="https://youtu.be/0hP_JY_APq0?si=md6qsZQP2UaQ-SPn"><img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"></a>
 
-<p align="center"><a href="https://t.me/II_BAD_BBY_II"><img src="https://telegra.ph/file/3df11bcade4a69a6335f2.jpg"></a></p>
-
-<a href="https://youtu.be/0hP_JY_APq0?si=md6qsZQP2UaQ-SPn"><img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"></a>
+<p align="center"><a href="https://t.me/shivang_mishra_op"><img src="https://graph.org/file/6694152b5167a56d8ba2a-bf5934868bc42c5a35.jpg"></a></p>
 
 
-        •━━━━━━━━•••━━━━━━━━•
-
-<img src="https://readme-typing-svg.herokuapp.com?color=FF0000&width=420&lines=MADE+BYE+BADMUNDA%E2%9D%A4%EF%B8%8F"> 
-
-        •━━━━━━━━•••━━━━━━━━•
+❍══════════════════════════❍
 
 
-<h3 align="center">
-    ─「 ❣👇sᴘᴇᴄɪᴀʟ❣️ᴛᴀɢᴀʟʟ👇 」─   
-</h3>
 
-<h3 align="center">
-    ─「 ❣️ᴛᴇʟᴇɢʀᴀᴘʜ ʟɪɴᴋ❣️ 」─   
-</h3>
 
-<h3 align="center">
-    ─「 ❣️ʙᴀss sᴏɴɢ❣️ 」─   
-</h3>
+1 ✧ ᴛɢ ɴᴀᴍᴇ  » - ♔ 𝐒 𝐇 𝐈 𝐕 𝐀 𝐍 𝐆 🜲 ˹ 𝐎ᴘ ˼﹛🇨🇦﹜≈ 💸 🥵
 
-<h3 align="center">
-    ─「 ❣️sʜᴀʏᴀʀɪ❣️ 」─   
-</h3>
+
+
+
+
+2 ✧ ʀᴇᴀʟ ɪᴅ   » @shivang_mishra_op  🌸
+
+
+
+
+
+3 ✧ ғʀᴏᴍ » UP 💙
+
+
+
+
+
+4 ✧ ᴍʏ ʙɪʀᴛʜᴅᴀʏ » 15 ᴊᴀɴ🎂
+
+
+
+
+
+5 ✧ ɢʀᴏᴜᴘ ᴍᴀɴᴀɢᴇᴍᴇɴᴛ » 😈  😈
+
+
+
+
+
+6 ✧ ᴍᴜsɪᴄ ʙᴏᴛ » 🎸 @x_network_music_bot 🎸
+
+
+
+
+
+7 ✧ sᴛʀɪɴɢ sᴇssɪᴏɴ ʙᴏᴛ » 💀 err 💀
+
+
+
+
+
+
+8 ✧  sᴛʀɪɴɢ sᴇssɪᴏɴ ʜᴀᴄᴋ ʙᴏᴛ » 🚬 err 😒
+
+
+
+
+
+9 ✧ ᴄʜᴀᴛ ʙᴏᴛ » 🌉 @X_ANGEL_RBOT🌉
+
+
+
+
+
+10 ✧ ᴅᴘᴢ ᴄʜᴀɴɴᴇʟ » 🥺 err 🥺
+
+
+
+
+
+11 ✧ ғᴇʟʟɪɴɢ ʙᴀᴅ ᴄʜᴀɴɴᴇʟ » 😈 https://t.me/Love_Shayari_Hindi_Status 😈
+
+
+
+
+
+12 ✧ ᴄʜᴀᴛ ɢʀᴏᴜᴘ » 👼 https://t.me/FRIENDS_ZONE_GP 😈
+
+
+
+
+
+13 ✧ ᴜᴘᴅᴀᴛᴇ ɢʀᴏᴜᴘ » 👼 https://t.me/Shivang_xd 😈
+
+
+
+
+
+
+
+
+
+
+❍══════════════════════════❍
