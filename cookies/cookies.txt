@@ -4,7 +4,6 @@
 
 # domain  include_subdomains  path  secure  expiration_date  name  value
 .youtube.com	TRUE	/	TRUE	1755081301	__Secure-1PSIDCC	AKEyXzWnN2YQ0_PWGBmMjxqrsoaekT_2ni7t5Wq5Whr5OoQfo_SKV4q9sYQV4uhRAl_OXUUehg
-.youtube.com	TRUE	/	TRUE	1758105276	SAPISID	hFE5YhFmEMSZdF-y/AAhea3c1tEyJzs3Q8
 .youtube.com	TRUE	/	FALSE	1758105276	APISID	UvyoylXNGRrsaluK/ASLoQHn2GmFgpo7Go
 .youtube.com	TRUE	/	TRUE	1758105276	SSID	AoVOWI6B5FiL0ioXZ
 .youtube.com	TRUE	/	TRUE	1758105276	__Secure-3PAPISID	hFE5YhFmEMSZdF-y/AAhea3c1tEyJzs3Q8
